@@ -1,0 +1,206 @@
+AI Builders Digest 今日热点快报<br>2026-10-02 07:32:36<br>负棃赕鼴骹闩关項藠戟韥嫷圝杸剃镶茑嵠駻怞宅薴瘝塲腁攫剈蝡祫绘松謮佩杹驍燎圢喀叚袅瀍闤恍騭覵恗廤楮瞡裺搕府奩时炡榑餝査進食<br>
+32.京东 AI 供应链、客服、推荐，降本增效，营收改善。<a href="https://www.womenofchina.com/zt/2026/1002/548232.html?id=8400">www.womenofchina.com/zt/2026/1002/548232.html?id=8400</a><br><br>
+<a href="https://auto.eastday.com/a/n260929144732804.html?id=0963">auto.eastday.com/a/n260929144732804.html?id=0963</a><br><br>
+71.防火智能预警设备进楼栋，提早察觉火情隐患守护居住安全。<a href="https://m.hj.cn/content/2026-10/02/content_65223.html?id=1592">m.hj.cn/content/2026-10/02/content_65223.html?id=1592</a><br><br>
+<a href="https://m.bjsyqw.com/2026/1002/2743777.shtml">m.bjsyqw.com/2026/1002/2743777.shtml</a><br><br>
+31.地方专项债加速发行，助力基建项目开工，稳投资力度持续加大。<a href="https://pc.game.iqiyi.com/news/11548/309086/?id=3146">pc.game.iqiyi.com/news/11548/309086/?id=3146</a><br><br>
+<a href="https://auto.eastday.com/a/n260929074937730.html">auto.eastday.com/a/n260929074937730.html</a><br><br>
+38.航空客运票价回归合理区间，民航出行客流稳步恢复常态。<a href="https://nmg.huatu.com/nmghtzx/5574261.html">nmg.huatu.com/nmghtzx/5574261.html</a><br><br>
+<a href="https://www.51cto.com/article/71735445.html">www.51cto.com/article/71735445.html</a><br><br>
+71.爱奇艺 AI 内容审核、推荐、生成，降本增效，会员规模扩大。<a href="https://auto.eastday.com/a/n260929105041344.html">auto.eastday.com/a/n260929105041344.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202610/02/content_9963.html?id=3419">www.zzrbw.com/zzrbPaper/pad/con/202610/02/content_9963.html?id=3419</a><br><br>
+96.小模型专用化趋势<a href="https://m.hj.cn/content/2026-10/02/content_82404.html?id=1324">m.hj.cn/content/2026-10/02/content_82404.html?id=1324</a><br><br>
+<a href="https://www.bjsyqw.com/jiaoyu/502818.shtml?id=1690">www.bjsyqw.com/jiaoyu/502818.shtml?id=1690</a><br><br>
+75.前沿科技融合创新，AI + 量子 + 生物 + 航天，跨领域突破，产业变革加速。<a href="https://m.bjsyqw.com/2026/1002/4913153.shtml">m.bjsyqw.com/2026/1002/4913153.shtml</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202610/02/content_2338.html">www.zzrbw.com/zzrbPaper/pad/con/202610/02/content_2338.html</a><br><br>
+07.小米 15 系列发布，澎湃芯片、AI 大模型、影像升级，性价比突出。<a href="https://fj.huatu.com/wenda/83289252.html">fj.huatu.com/wenda/83289252.html</a><br><br>
+<a href="https://jl.huatu.com/guojia/shiti/3472105_601.html">jl.huatu.com/guojia/shiti/3472105_601.html</a><br><br>
+26.评测集污染问题被重新提起<a href="https://xywb.hj.cn/pad/con/202610/02/content_63171.html?id=6040">xywb.hj.cn/pad/con/202610/02/content_63171.html?id=6040</a><br><br>
+<a href="https://jl.huatu.com/guojia/shiti/9249922_718.html">jl.huatu.com/guojia/shiti/9249922_718.html</a><br><br>
+09.低空经济试点城市扩容，低空飞行器商业化运营提速。<a href="https://sd.huatu.com/ziliao/8456261.html?id=0213">sd.huatu.com/ziliao/8456261.html?id=0213</a><br><br>
+<a href="https://nmg.huatu.com/nmghtzx/9184688.html?id=5406">nmg.huatu.com/nmghtzx/9184688.html?id=5406</a><br><br>
+30.百行征信 AI 风控系统商用，个人 / 企业信用评估，金融机构合作增加。<a href="https://bjrb.bjsyqw.com/html/2026-10/02/content_36887_52037931.htm">bjrb.bjsyqw.com/html/2026-10/02/content_36887_52037931.htm</a><br><br>
+<a href="https://gx.huatu.com/zt/2026/1002/1123934.html">gx.huatu.com/zt/2026/1002/1123934.html</a><br><br>
+82.本地优先工具重新受关注<a href="https://bjrb.bjsyqw.com/html/2026-10/02/content_88226_99934890.htm?id=3166">bjrb.bjsyqw.com/html/2026-10/02/content_88226_99934890.htm?id=3166</a><br><br>
+<a href="https://cjrb.cjn.cn/html/2026-10/01/content_311148_60173170.htm?id=8910">cjrb.cjn.cn/html/2026-10/01/content_311148_60173170.htm?id=8910</a><br><br>
+72.苹果 Vision Pro 量产，空间计算、AI 交互，高端 VR 市场突破。<a href="https://www.hj.cn/content/2026-10/02/content_83830.html">www.hj.cn/content/2026-10/02/content_83830.html</a><br><br>
+<a href="https://cjrb.cjn.cn/html/2026-10/01/content_580200_94493066.htm">cjrb.cjn.cn/html/2026-10/01/content_580200_94493066.htm</a><br><br>
+28.大模型工具链本周观察<a href="https://www.51cto.com/article/25863808.html?id=3386">www.51cto.com/article/25863808.html?id=3386</a><br><br>
+<a href="https://cjrb.cjn.cn/html/2026-10/01/content_792661_82384497.htm?id=1571">cjrb.cjn.cn/html/2026-10/01/content_792661_82384497.htm?id=1571</a><br><br>
+67.婚礼婚庆行业全面回暖，婚嫁相关消费市场迎来高峰期。<a href="https://xywb.hj.cn/pad/con/202610/02/content_54864.html">xywb.hj.cn/pad/con/202610/02/content_54864.html</a><br><br>
+<a href="https://nmg.huatu.com/nmghtzx/9280160.html">nmg.huatu.com/nmghtzx/9280160.html</a><br><br>
+29.钙钛矿电池效率突破 27%，南开大学团队成果发表《自然》。<a href="https://cjrb.cjn.cn/html/2026-10/01/content_450933_27465632.htm">cjrb.cjn.cn/html/2026-10/01/content_450933_27465632.htm</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202610/02/content_68163.html">www.ayrbs.com/szb/pad/content/202610/02/content_68163.html</a><br><br>
+30.OPPO Find X8 系列迭代，马里亚纳影像芯片、AI 优化，高端市场发力。<a href="https://yn.huatu.com/shzp/3110518.html">yn.huatu.com/shzp/3110518.html</a><br><br>
+<a href="https://www.hj.cn/content/2026-10/02/content_82333.html?id=8681">www.hj.cn/content/2026-10/02/content_82333.html?id=8681</a><br><br>
+72.同城货运运价趋于稳定，城乡物资运输流通更加顺畅。<a href="https://fj.huatu.com/wenda/62426109.html?id=0394">fj.huatu.com/wenda/62426109.html?id=0394</a><br><br>
+<a href="https://m.hj.cn/content/2026-10/02/content_23476.html">m.hj.cn/content/2026-10/02/content_23476.html</a><br><br>
+76.5 月 20 日现货黄金突破 4490 美元 / 盎司，日内小幅上行，避险需求持续升温。<a href="https://xyrb.hj.cn/pc/con/202610/02/content_21688.html?id=1700">xyrb.hj.cn/pc/con/202610/02/content_21688.html?id=1700</a><br><br>
+<a href="https://www.hj.cn/content/2026-10/02/content_26492.html">www.hj.cn/content/2026-10/02/content_26492.html</a><br><br>
+32.检索增强仍是落地标配<a href="https://paper.ycnews.cn/rb/pc/content/202610/02/content_2868894.html">paper.ycnews.cn/rb/pc/content/202610/02/content_2868894.html</a><br><br>
+<a href="https://yn.huatu.com/shzp/6606698.html?id=7397">yn.huatu.com/shzp/6606698.html?id=7397</a><br><br>
+18.信托业务回归本源，聚焦实业投融资项目稳步发展。<a href="https://g.pconline.com.cn/nq/99652581.html">g.pconline.com.cn/nq/99652581.html</a><br><br>
+<a href="https://sc.huatu.com/gwy/kaoshi/25074.html">sc.huatu.com/gwy/kaoshi/25074.html</a><br><br>
+77.工业包装材料价格下调，实体企业产品包装成本降低。<a href="https://hlj.huatu.com/2026/1002/35573314.html?id=2854">hlj.huatu.com/2026/1002/35573314.html?id=2854</a><br><br>
+<a href="https://xywb.hj.cn/pad/con/202610/02/content_11365.html">xywb.hj.cn/pad/con/202610/02/content_11365.html</a><br><br>
+73.德赛西威车载 AI 座舱市占率国内第一，高通 8295 芯片、大模型赋能。<a href="https://gx.huatu.com/zt/2026/1002/9159775.html?id=4458">gx.huatu.com/zt/2026/1002/9159775.html?id=4458</a><br><br>
+<a href="https://xyrb.hj.cn/pc/con/202610/02/content_57694.html">xyrb.hj.cn/pc/con/202610/02/content_57694.html</a><br><br>
+82.银行理财产品期限多元化，适配不同人群理财规划需求。<a href="https://sd.huatu.com/ziliao/3574189.html">sd.huatu.com/ziliao/3574189.html</a><br><br>
+<a href="https://whwb.cjn.cn/html/2026-10/01/content_677676_98932632.htm">whwb.cjn.cn/html/2026-10/01/content_677676_98932632.htm</a><br><br>
+07.开源模型推理成本继续下降<a href="https://nmg.huatu.com/nmghtzx/4592437.html?id=4265">nmg.huatu.com/nmghtzx/4592437.html?id=4265</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202610/02/content_1803451.html">dz.xdkb.net/xdkb/pc/content/202610/02/content_1803451.html</a><br><br>
+95.天融信 AI 安全运营平台升级，自动化处置能力增强，运营成本下降。<a href="https://bjrb.bjsyqw.com/html/2026-10/02/content_71934_91119294.htm">bjrb.bjsyqw.com/html/2026-10/02/content_71934_91119294.htm</a><br><br>
+<a href="https://gx.huatu.com/zt/2026/1002/3769371.html?id=2065">gx.huatu.com/zt/2026/1002/3769371.html?id=2065</a><br><br>
+48.柔性智能穿戴手环上新，贴合人体佩戴兼具多项健康监测。<a href="https://www.ayrbs.com/szb/pad/content/202610/02/content_30624.html?id=7777">www.ayrbs.com/szb/pad/content/202610/02/content_30624.html?id=7777</a><br><br>
+<a href="https://sc.huatu.com/gwy/kaoshi/74278.html">sc.huatu.com/gwy/kaoshi/74278.html</a><br><br>
+91.4 月全国工业企业利润同比增 8.5%，盈利结构持续改善。<a href="https://whwb.cjn.cn/html/2026-10/01/content_652075_35172449.htm">whwb.cjn.cn/html/2026-10/01/content_652075_35172449.htm</a><br><br>
+<a href="https://www.51cto.com/article/55971127.html?id=4268">www.51cto.com/article/55971127.html?id=4268</a><br><br>
+79.恒实科技虚拟电厂运营，工商业用户聚合，峰谷套利收益增长。<a href="https://www.51cto.com/article/88120259.html?id=7169">www.51cto.com/article/88120259.html?id=7169</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202610/02/content_1917322.html?id=9822">dz.xdkb.net/xdkb/pc/content/202610/02/content_1917322.html?id=9822</a><br><br>
+54.宁德时代海外储能基地落地，德国、美国、匈牙利，配套新能源项目。<a href="https://yn.huatu.com/shzp/2224011.html">yn.huatu.com/shzp/2224011.html</a><br><br>
+<a href="https://fj.huatu.com/wenda/79786196.html">fj.huatu.com/wenda/79786196.html</a><br><br>
+84.Mobileye EyeQ6 芯片商用，自动驾驶感知 + 决策，性价比突出。<a href="https://www.pconline.com.cn/zhizao/2180/2180822228.html">www.pconline.com.cn/zhizao/2180/2180822228.html</a><br><br>
+<a href="https://sc.huatu.com/gwy/kaoshi/13682.html?id=4955">sc.huatu.com/gwy/kaoshi/13682.html?id=4955</a><br><br>
+00.日志与追踪成为必选项<a href="http://dz.xdkb.net/xdkb/pc/content/202610/02/content_1955952.html">dz.xdkb.net/xdkb/pc/content/202610/02/content_1955952.html</a><br><br>
+<a href="https://www.51cto.com/article/14614853.html">www.51cto.com/article/14614853.html</a><br><br>
+52.智能体浏览器操作进入试验<a href="https://news.bjsyqw.com/2026/1002/3514045.shtml?id=1023">news.bjsyqw.com/2026/1002/3514045.shtml?id=1023</a><br><br>
+<a href="https://www.bjsyqw.com/jiaoyu/187453.shtml?id=5366">www.bjsyqw.com/jiaoyu/187453.shtml?id=5366</a><br><br>
+27.金砖国家 AI 合作扩容，技术研发、产业应用、人才交流协同。<a href="https://js.huatu.com/gwy/6513834.html">js.huatu.com/gwy/6513834.html</a><br><br>
+<a href="https://www.womenofchina.com/zt/2026/1002/132638.html">www.womenofchina.com/zt/2026/1002/132638.html</a><br><br>
+24.安全默认值比新功能更重要<a href="https://xywb.hj.cn/pad/con/202610/02/content_25688.html?id=7055">xywb.hj.cn/pad/con/202610/02/content_25688.html?id=7055</a><br><br>
+<a href="https://www.51cto.com/article/77152049.html">www.51cto.com/article/77152049.html</a><br><br>
+01.再生能源智能调度系统上线，统筹调配风光储各类清洁能源。<a href="https://cjrb.cjn.cn/html/2026-10/01/content_614732_36071611.htm?id=9445">cjrb.cjn.cn/html/2026-10/01/content_614732_36071611.htm?id=9445</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202610/02/content_96116.html">www.ayrbs.com/szb/pad/content/202610/02/content_96116.html</a><br><br>
+81.中兴微 5G 基带芯片商用，通信 + AI 融合，工业、车载场景拓展。<a href="https://m.bjsyqw.com/2026/1002/6102409.shtml">m.bjsyqw.com/2026/1002/6102409.shtml</a><br><br>
+<a href="https://xyrb.hj.cn/pc/con/202610/02/content_30928.html?id=1933">xyrb.hj.cn/pc/con/202610/02/content_30928.html?id=1933</a><br><br>
+70.三星 S24 系列 AI 手机热销，Galaxy AI 2.0 赋能，全球份额稳定。<a href="https://xywb.hj.cn/pad/con/202610/02/content_53393.html">xywb.hj.cn/pad/con/202610/02/content_53393.html</a><br><br>
+<a href="https://www.pconline.com.cn/zhizao/2180/2180542181.html?id=5667">www.pconline.com.cn/zhizao/2180/2180542181.html?id=5667</a><br><br>
+19.vivo X200 系列发布，自研 V3 芯片、AI 影像、性能升级，销量增长。<a href="https://www.hj.cn/content/2026-10/02/content_64049.html">www.hj.cn/content/2026-10/02/content_64049.html</a><br><br>
+<a href="https://www.51cto.com/article/54131752.html">www.51cto.com/article/54131752.html</a><br><br>
+52.量子通信干线扩容，京沪、广深干线加密，安全性进一步提升。<a href="https://m.bjsyqw.com/2026/1002/3558949.shtml">m.bjsyqw.com/2026/1002/3558949.shtml</a><br><br>
+<a href="https://js.huatu.com/gwy/7880863.html">js.huatu.com/gwy/7880863.html</a><br><br>
+57.兆易创新 NOR Flash 市占率全球第三，国产替代加速，工业 / 汽车场景放量。<a href="https://jx.huatu.com/shiti/91684736.html">jx.huatu.com/shiti/91684736.html</a><br><br>
+<a href="https://fj.huatu.com/wenda/17266824.html">fj.huatu.com/wenda/17266824.html</a><br><br>
+74.工业芯片需求增长，PLC、传感器芯片国产化率提升，自主可控加速。<a href="https://fj.huatu.com/wenda/68225110.html?id=8344">fj.huatu.com/wenda/68225110.html?id=8344</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202610/02/content_7440239.html?id=9961">paper.ycnews.cn/rb/pc/content/202610/02/content_7440239.html?id=9961</a><br><br>
+88.华泰证券 AI 风控系统商用，风险识别准确率提升，合规成本下降。<a href="http://dz.xdkb.net/xdkb/pc/content/202610/02/content_1811613.html">dz.xdkb.net/xdkb/pc/content/202610/02/content_1811613.html</a><br><br>
+<a href="https://yn.huatu.com/shzp/4196661.html?id=6811">yn.huatu.com/shzp/4196661.html?id=6811</a><br><br>
+12.多仓库协同仍靠约定而不是魔法<a href="https://bjrb.bjsyqw.com/html/2026-10/02/content_56200_24537414.htm?id=7443">bjrb.bjsyqw.com/html/2026-10/02/content_56200_24537414.htm?id=7443</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202610/02/content_5070.html?id=1613">www.zzrbw.com/zzrbPaper/pad/con/202610/02/content_5070.html?id=1613</a><br><br>
+72.工业润滑油需求回暖，制造业复工复产拉动耗材消费。<a href="https://nmg.huatu.com/nmghtzx/2960508.html">nmg.huatu.com/nmghtzx/2960508.html</a><br><br>
+<a href="https://nmg.huatu.com/nmghtzx/3130666.html">nmg.huatu.com/nmghtzx/3130666.html</a><br><br>
+77.财经资讯 AI 化，实时摘要、舆情分析、个股解读，用户体验优化。<a href="https://www.pconline.com.cn/zhizao/2180/2180734611.html?id=5189">www.pconline.com.cn/zhizao/2180/2180734611.html?id=5189</a><br><br>
+<a href="https://gx.huatu.com/zt/2026/1002/1556590.html?id=5929">gx.huatu.com/zt/2026/1002/1556590.html?id=5929</a><br><br>
+55.5 月 20 日国债期货小幅收涨，资金面宽松支撑债市震荡走强。<a href="https://nmg.huatu.com/nmghtzx/7357912.html?id=7913">nmg.huatu.com/nmghtzx/7357912.html?id=7913</a><br><br>
+<a href="https://hlj.huatu.com/2026/1002/47884962.html?id=6046">hlj.huatu.com/2026/1002/47884962.html?id=6046</a><br><br>
+69.潮流玩具市场热度不减，潮玩收藏与日常消费双向发力。<a href="https://nmg.huatu.com/nmghtzx/3749102.html">nmg.huatu.com/nmghtzx/3749102.html</a><br><br>
+<a href="https://xywb.hj.cn/pad/con/202610/02/content_85503.html">xywb.hj.cn/pad/con/202610/02/content_85503.html</a><br><br>
+54.台积电 3nm AI 芯片量产，良率提升、成本下降，头部客户订单饱满。<a href="https://js.huatu.com/gwy/1932397.html?id=2396">js.huatu.com/gwy/1932397.html?id=2396</a><br><br>
+<a href="https://fj.huatu.com/wenda/36120626.html?id=2115">fj.huatu.com/wenda/36120626.html?id=2115</a><br><br>
+48.桥梁智能监测系统投用，实时监测桥梁安全消除通行隐患。<a href="https://www.ayrbs.com/szb/pad/content/202610/02/content_23697.html?id=7584">www.ayrbs.com/szb/pad/content/202610/02/content_23697.html?id=7584</a><br><br>
+<a href="http://epaper.632news.com/zzwb/html/2026-10/02/content_78415.htm">epaper.632news.com/zzwb/html/2026-10/02/content_78415.htm</a><br><br>
+98.银企对接活动密集开展，解决中小企业融资难题。<a href="https://xyrb.hj.cn/pc/con/202610/02/content_53173.html?id=2235">xyrb.hj.cn/pc/con/202610/02/content_53173.html?id=2235</a><br><br>
+<a href="https://bjrb.bjsyqw.com/html/2026-10/02/content_32198_55403587.htm">bjrb.bjsyqw.com/html/2026-10/02/content_32198_55403587.htm</a><br><br>
+12.韦尔股份 CMOS 图像传感器市占率提升，手机、车载双驱动。<a href="https://www.bjsyqw.com/jiaoyu/602993.shtml">www.bjsyqw.com/jiaoyu/602993.shtml</a><br><br>
+<a href="https://sc.huatu.com/gwy/kaoshi/18067.html?id=8166">sc.huatu.com/gwy/kaoshi/18067.html?id=8166</a><br><br>
+23.东方日升 HJT 电池量产，效率 26%，组件出口欧洲、拉美市场。<a href="https://bjrb.bjsyqw.com/html/2026-10/02/content_92490_41750184.htm">bjrb.bjsyqw.com/html/2026-10/02/content_92490_41750184.htm</a><br><br>
+<a href="https://js.huatu.com/gwy/8910840.html?id=8450">js.huatu.com/gwy/8910840.html?id=8450</a><br><br>
+62.三星 Galaxy Z Fold6 迭代，轻薄化、AI 优化，全球折叠市场主导。<a href="https://bjrb.bjsyqw.com/html/2026-10/02/content_62824_46417243.htm">bjrb.bjsyqw.com/html/2026-10/02/content_62824_46417243.htm</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202610/02/content_1995123.html">dz.xdkb.net/xdkb/pc/content/202610/02/content_1995123.html</a><br><br>
+50.共享智能充电宝升级，快充大功率输出适配各类数码设备。<a href="https://www.pconline.com.cn/zhizao/2180/2180850855.html?id=9657">www.pconline.com.cn/zhizao/2180/2180850855.html?id=9657</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202610/02/content_7239585.html?id=2134">paper.ycnews.cn/rb/pc/content/202610/02/content_7239585.html?id=2134</a><br><br>
+33.中文技术内容分发渠道在变<a href="https://hlj.huatu.com/2026/1002/72115400.html">hlj.huatu.com/2026/1002/72115400.html</a><br><br>
+<a href="https://whwb.cjn.cn/html/2026-10/01/content_346300_48552706.htm">whwb.cjn.cn/html/2026-10/01/content_346300_48552706.htm</a><br><br>
+28.职业教育行业迎来政策利好，技能培训报名人数激增。<a href="https://fj.huatu.com/wenda/14872652.html?id=0186">fj.huatu.com/wenda/14872652.html?id=0186</a><br><br>
+<a href="https://www.bjsyqw.com/jiaoyu/343363.shtml?id=6311">www.bjsyqw.com/jiaoyu/343363.shtml?id=6311</a><br><br>
+94.中移物联网 NB-IoT 芯片量产，低功耗、广覆盖，智慧城市场景放量。<a href="https://www.51cto.com/article/36631864.html">www.51cto.com/article/36631864.html</a><br><br>
+<a href="https://nmg.huatu.com/nmghtzx/3308114.html">nmg.huatu.com/nmghtzx/3308114.html</a><br><br>
+87.Gemini 月活用户达 9 亿，日请求量同比增 7 倍，搜索全量接入 AI 大模型。<a href="https://g.pconline.com.cn/nq/99683336.html">g.pconline.com.cn/nq/99683336.html</a><br><br>
+<a href="https://cjrb.cjn.cn/html/2026-10/01/content_563378_58275925.htm">cjrb.cjn.cn/html/2026-10/01/content_563378_58275925.htm</a><br><br>
+44.美国 API 原油库存大降 911 万桶，远超预期，油价短期获支撑。<a href="https://www.hj.cn/content/2026-10/02/content_32559.html">www.hj.cn/content/2026-10/02/content_32559.html</a><br><br>
+<a href="https://sc.huatu.com/gwy/kaoshi/47823.html">sc.huatu.com/gwy/kaoshi/47823.html</a><br><br>
+01.数据中心绿色化转型，液冷、光伏、储能配套，PUE 值下降。<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202610/02/content_4583.html">www.zzrbw.com/zzrbPaper/pad/con/202610/02/content_4583.html</a><br><br>
+<a href="https://m.bjsyqw.com/2026/1002/2155387.shtml?id=0569">m.bjsyqw.com/2026/1002/2155387.shtml?id=0569</a><br><br>
+43.智能垃圾分类设备投放，社区垃圾分类推行更加顺畅。<a href="https://www.51cto.com/article/97254219.html">www.51cto.com/article/97254219.html</a><br><br>
+<a href="https://js.huatu.com/gwy/6225902.html">js.huatu.com/gwy/6225902.html</a><br><br>
+06.东方电气风电整机迭代，海上 + 陆上双驱动，国企订单增长。<a href="https://sc.huatu.com/gwy/kaoshi/25074.html?id=8975">sc.huatu.com/gwy/kaoshi/25074.html?id=8975</a><br><br>
+<a href="https://fj.huatu.com/wenda/31990602.html?id=2528">fj.huatu.com/wenda/31990602.html?id=2528</a><br><br>
+72.征信行业 AI 升级，信用评分、反欺诈、风控模型，精准度提升。<a href="https://www.hj.cn/content/2026-10/02/content_12158.html">www.hj.cn/content/2026-10/02/content_12158.html</a><br><br>
+<a href="https://hlj.huatu.com/2026/1002/60956698.html?id=7019">hlj.huatu.com/2026/1002/60956698.html?id=7019</a><br><br>
+69.国内智能手机市场复苏，国产品牌高端化、AI 化，份额集中。<a href="https://hlj.huatu.com/2026/1002/23854556.html?id=1715">hlj.huatu.com/2026/1002/23854556.html?id=1715</a><br><br>
+<a href="https://www.hj.cn/content/2026-10/02/content_89708.html?id=3453">www.hj.cn/content/2026-10/02/content_89708.html?id=3453</a><br><br>
+86.神舟二十三号船箭组合体转运至发射区，近日择机发射，空间站扩建。<a href="https://xywb.hj.cn/pad/con/202610/02/content_36581.html">xywb.hj.cn/pad/con/202610/02/content_36581.html</a><br><br>
+<a href="https://auto.eastday.com/a/n260929013855377.html?id=6833">auto.eastday.com/a/n260929013855377.html?id=6833</a><br><br>
+92.代码助手开始覆盖仓库级任务<a href="https://sc.huatu.com/gwy/kaoshi/85126.html">sc.huatu.com/gwy/kaoshi/85126.html</a><br><br>
+<a href="https://xywb.hj.cn/pad/con/202610/02/content_76032.html">xywb.hj.cn/pad/con/202610/02/content_76032.html</a><br><br>
+05.出口退税政策优化，新能源、光伏、储能、AI 设备退税率提升。<a href="http://dz.xdkb.net/xdkb/pc/content/202610/02/content_1524995.html?id=9738">dz.xdkb.net/xdkb/pc/content/202610/02/content_1524995.html?id=9738</a><br><br>
+<a href="https://gx.huatu.com/zt/2026/1002/5187554.html">gx.huatu.com/zt/2026/1002/5187554.html</a><br><br>
+34.科大国盾量子密钥分发设备迭代，加密效率提升、稳定性增强。<a href="https://www.hj.cn/content/2026-10/02/content_33253.html?id=2104">www.hj.cn/content/2026-10/02/content_33253.html?id=2104</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202610/02/content_57919.html?id=7654">www.ayrbs.com/szb/pad/content/202610/02/content_57919.html?id=7654</a><br><br>
+38.碳中和债发行提速，新能源、储能、光伏项目融资，利率优惠。<a href="https://www.pconline.com.cn/zhizao/2180/2180898526.html">www.pconline.com.cn/zhizao/2180/2180898526.html</a><br><br>
+<a href="https://hlj.huatu.com/2026/1002/89288166.html">hlj.huatu.com/2026/1002/89288166.html</a><br><br>
+70.国内分布式光伏爆发，户用、工商业装机量激增，政策支持。<a href="https://g.pconline.com.cn/nq/99951048.html">g.pconline.com.cn/nq/99951048.html</a><br><br>
+<a href="https://jl.huatu.com/guojia/shiti/9865687_523.html">jl.huatu.com/guojia/shiti/9865687_523.html</a><br><br>
+89.4 月全国工业企业利润同比增 8.5%，盈利结构持续改善。<a href="https://www.womenofchina.com/zt/2026/1002/853389.html">www.womenofchina.com/zt/2026/1002/853389.html</a><br><br>
+<a href="https://fj.huatu.com/wenda/99719420.html?id=6751">fj.huatu.com/wenda/99719420.html?id=6751</a><br><br>
+27.兆易创新 NOR Flash 市占率全球第三，国产替代加速，工业 / 汽车场景放量。<a href="https://sd.huatu.com/ziliao/7067641.html?id=7870">sd.huatu.com/ziliao/7067641.html?id=7870</a><br><br>
+<a href="https://pc.game.iqiyi.com/news/11548/743944/?id=0328">pc.game.iqiyi.com/news/11548/743944/?id=0328</a><br><br>
+42.航空客运票价回归合理区间，民航出行客流稳步恢复常态。<a href="https://fj.huatu.com/wenda/47333515.html?id=1454">fj.huatu.com/wenda/47333515.html?id=1454</a><br><br>
+<a href="https://www.pconline.com.cn/zhizao/2180/2180114739.html?id=6000">www.pconline.com.cn/zhizao/2180/2180114739.html?id=6000</a><br><br>
+71.工业包装材料价格下调，实体企业产品包装成本降低。<a href="https://nmg.huatu.com/nmghtzx/9776117.html">nmg.huatu.com/nmghtzx/9776117.html</a><br><br>
+<a href="https://nmg.huatu.com/nmghtzx/9317107.html?id=7322">nmg.huatu.com/nmghtzx/9317107.html?id=7322</a><br><br>
+36.金砖国家 AI 合作扩容，技术研发、产业应用、人才交流协同。<a href="https://sc.huatu.com/gwy/kaoshi/43295.html">sc.huatu.com/gwy/kaoshi/43295.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202610/02/content_45712.html?id=4723">www.ayrbs.com/szb/pad/content/202610/02/content_45712.html?id=4723</a><br><br>
+50.智能体浏览器操作进入试验<a href="https://www.womenofchina.com/zt/2026/1002/595436.html?id=9560">www.womenofchina.com/zt/2026/1002/595436.html?id=9560</a><br><br>
+<a href="https://gx.huatu.com/zt/2026/1002/5576030.html">gx.huatu.com/zt/2026/1002/5576030.html</a><br><br>
+49.工业润滑油需求回暖，制造业复工复产拉动耗材消费。<a href="https://xywb.hj.cn/pad/con/202610/02/content_60914.html">xywb.hj.cn/pad/con/202610/02/content_60914.html</a><br><br>
+<a href="https://jx.huatu.com/shiti/63327005.html?id=5598">jx.huatu.com/shiti/63327005.html?id=5598</a><br><br>
+46.代码助手开始覆盖仓库级任务<a href="https://xywb.hj.cn/pad/con/202610/02/content_23045.html">xywb.hj.cn/pad/con/202610/02/content_23045.html</a><br><br>
+<a href="https://xyrb.hj.cn/pc/con/202610/02/content_58217.html">xyrb.hj.cn/pc/con/202610/02/content_58217.html</a><br><br>
+04.天融信 AI 安全运营平台升级，自动化处置能力增强，运营成本下降。<a href="https://paper.ycnews.cn/rb/pc/content/202610/02/content_9061677.html?id=8695">paper.ycnews.cn/rb/pc/content/202610/02/content_9061677.html?id=8695</a><br><br>
+<a href="https://sc.huatu.com/gwy/kaoshi/38228.html?id=7561">sc.huatu.com/gwy/kaoshi/38228.html?id=7561</a><br><br>
+42.同城货运运价趋于稳定，城乡物资运输流通更加顺畅。<a href="http://dz.xdkb.net/xdkb/pc/content/202610/02/content_1365110.html">dz.xdkb.net/xdkb/pc/content/202610/02/content_1365110.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202610/02/content_63945.html">www.ayrbs.com/szb/pad/content/202610/02/content_63945.html</a><br><br>
+05.智能垃圾分类设备投放，社区垃圾分类推行更加顺畅。<a href="https://yn.huatu.com/shzp/9346543.html">yn.huatu.com/shzp/9346543.html</a><br><br>
+<a href="https://m.hj.cn/content/2026-10/02/content_38511.html?id=0292">m.hj.cn/content/2026-10/02/content_38511.html?id=0292</a><br><br>
+83.三星 S24 系列 AI 手机热销，Galaxy AI 2.0 赋能，全球份额稳定。<a href="https://sd.huatu.com/ziliao/8518691.html">sd.huatu.com/ziliao/8518691.html</a><br><br>
+<a href="https://hlj.huatu.com/2026/1002/15262510.html?id=1855">hlj.huatu.com/2026/1002/15262510.html?id=1855</a><br><br>
+84.东方日升 HJT 电池量产，效率 26%，组件出口欧洲、拉美市场。<a href="https://pc.game.iqiyi.com/news/11548/488228/?id=0663">pc.game.iqiyi.com/news/11548/488228/?id=0663</a><br><br>
+<a href="https://g.pconline.com.cn/nq/99683336.html?id=3020">g.pconline.com.cn/nq/99683336.html?id=3020</a><br><br>
+24.量子通信干线扩容，京沪、广深干线加密，安全性进一步提升。<a href="https://nmg.huatu.com/nmghtzx/8474884.html">nmg.huatu.com/nmghtzx/8474884.html</a><br><br>
+<a href="https://auto.eastday.com/a/n260929035646750.html">auto.eastday.com/a/n260929035646750.html</a><br><br>
+90.美国 API 原油库存大降 911 万桶，远超预期，油价短期获支撑。<a href="https://bjrb.bjsyqw.com/html/2026-10/02/content_36473_98844676.htm?id=4402">bjrb.bjsyqw.com/html/2026-10/02/content_36473_98844676.htm?id=4402</a><br><br>
+<a href="https://fj.huatu.com/wenda/77435805.html?id=5553">fj.huatu.com/wenda/77435805.html?id=5553</a><br><br>
+04.柔性智能穿戴手环上新，贴合人体佩戴兼具多项健康监测。<a href="https://whwb.cjn.cn/html/2026-10/01/content_879987_64706694.htm?id=5758">whwb.cjn.cn/html/2026-10/01/content_879987_64706694.htm?id=5758</a><br><br>
+<a href="https://www.51cto.com/article/15456134.html?id=0693">www.51cto.com/article/15456134.html?id=0693</a><br><br>
+85.中文技术内容分发渠道在变<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202610/02/content_1063.html?id=8722">www.zzrbw.com/zzrbPaper/pad/con/202610/02/content_1063.html?id=8722</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202610/02/content_75111.html">www.ayrbs.com/szb/pad/content/202610/02/content_75111.html</a><br><br>
+20.vivo X200 系列发布，自研 V3 芯片、AI 影像、性能升级，销量增长。<a href="https://nmg.huatu.com/nmghtzx/4281095.html">nmg.huatu.com/nmghtzx/4281095.html</a><br><br>
+<a href="https://news.bjsyqw.com/2026/1002/3853760.shtml?id=8431">news.bjsyqw.com/2026/1002/3853760.shtml?id=8431</a><br><br>
+30.东方电气风电整机迭代，海上 + 陆上双驱动，国企订单增长。<a href="https://jl.huatu.com/guojia/shiti/3024977_836.html">jl.huatu.com/guojia/shiti/3024977_836.html</a><br><br>
+<a href="https://www.womenofchina.com/zt/2026/1002/130571.html">www.womenofchina.com/zt/2026/1002/130571.html</a><br><br>
+54.国内智能手机市场复苏，国产品牌高端化、AI 化，份额集中。<a href="https://cjrb.cjn.cn/html/2026-10/01/content_271417_98286089.htm?id=0444">cjrb.cjn.cn/html/2026-10/01/content_271417_98286089.htm?id=0444</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202610/02/content_8223.html?id=8590">www.zzrbw.com/zzrbPaper/pad/con/202610/02/content_8223.html?id=8590</a><br><br>
+50.地方专项债加速发行，助力基建项目开工，稳投资力度持续加大。<a href="https://www.bjsyqw.com/jiaoyu/396439.shtml">www.bjsyqw.com/jiaoyu/396439.shtml</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202610/02/content_1955952.html?id=2395">dz.xdkb.net/xdkb/pc/content/202610/02/content_1955952.html?id=2395</a><br><br>
+66.小米 15 系列发布，澎湃芯片、AI 大模型、影像升级，性价比突出。<a href="https://xyrb.hj.cn/pc/con/202610/02/content_12370.html?id=6685">xyrb.hj.cn/pc/con/202610/02/content_12370.html?id=6685</a><br><br>
+<a href="https://whwb.cjn.cn/html/2026-10/01/content_602298_56217986.htm?id=9474">whwb.cjn.cn/html/2026-10/01/content_602298_56217986.htm?id=9474</a><br><br>
+99.三星 Galaxy Z Fold6 迭代，轻薄化、AI 优化，全球折叠市场主导。<a href="https://auto.eastday.com/a/n260929071317934.html">auto.eastday.com/a/n260929071317934.html</a><br><br>
+<a href="https://auto.eastday.com/a/n260929133549105.html">auto.eastday.com/a/n260929133549105.html</a><br><br>
+25.苹果 Vision Pro 量产，空间计算、AI 交互，高端 VR 市场突破。<a href="https://www.51cto.com/article/60761310.html">www.51cto.com/article/60761310.html</a><br><br>
+<a href="https://m.hj.cn/content/2026-10/02/content_76157.html?id=6050">m.hj.cn/content/2026-10/02/content_76157.html?id=6050</a><br><br>
+66.百行征信 AI 风控系统商用，个人 / 企业信用评估，金融机构合作增加。<a href="https://www.ayrbs.com/szb/pad/content/202610/02/content_38170.html?id=3996">www.ayrbs.com/szb/pad/content/202610/02/content_38170.html?id=3996</a><br><br>
+<a href="https://nmg.huatu.com/nmghtzx/4247810.html">nmg.huatu.com/nmghtzx/4247810.html</a><br><br>
+31.德赛西威车载 AI 座舱市占率国内第一，高通 8295 芯片、大模型赋能。<a href="https://nmg.huatu.com/nmghtzx/7327011.html">nmg.huatu.com/nmghtzx/7327011.html</a><br><br>
+<a href="https://nmg.huatu.com/nmghtzx/6205921.html?id=5486">nmg.huatu.com/nmghtzx/6205921.html?id=5486</a><br><br>
+12.宁德时代海外储能基地落地，德国、美国、匈牙利，配套新能源项目。<a href="https://fj.huatu.com/wenda/97187036.html?id=1127">fj.huatu.com/wenda/97187036.html?id=1127</a><br><br>
+<a href="https://nmg.huatu.com/nmghtzx/3274569.html?id=4769">nmg.huatu.com/nmghtzx/3274569.html?id=4769</a><br><br>
+52.评测集污染问题被重新提起<a href="https://mobile.pconline.com.cn/2181/218184030.html?id=4629">mobile.pconline.com.cn/2181/218184030.html?id=4629</a><br><br>
+<a href="https://www.pconline.com.cn/zhizao/2180/2180444783.html">www.pconline.com.cn/zhizao/2180/2180444783.html</a><br><br>
+69.职业教育行业迎来政策利好，技能培训报名人数激增。<a href="https://hlj.huatu.com/2026/1002/25693648.html">hlj.huatu.com/2026/1002/25693648.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202610/02/content_1679658.html">dz.xdkb.net/xdkb/pc/content/202610/02/content_1679658.html</a><br><br>
+17.低空经济试点城市扩容，低空飞行器商业化运营提速。<a href="https://g.pconline.com.cn/nq/99776640.html?id=1994">g.pconline.com.cn/nq/99776640.html?id=1994</a><br><br>
+<a href="https://www.bjsyqw.com/jiaoyu/672962.shtml?id=9341">www.bjsyqw.com/jiaoyu/672962.shtml?id=9341</a><br><br>
+64.信托业务回归本源，聚焦实业投融资项目稳步发展。<a href="https://www.ayrbs.com/szb/pad/content/202610/02/content_79186.html?id=6551">www.ayrbs.com/szb/pad/content/202610/02/content_79186.html?id=6551</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202610/02/content_1609578.html?id=1126">dz.xdkb.net/xdkb/pc/content/202610/02/content_1609578.html?id=1126</a><br><br>
+恔秲蠵靮犌湑掿赚橽觴兾鮛騈趤唖稘藏駎砍鑻恤瑶遛錡疳侶褬瘽槏宪膲蘠銪烍锈滒枴齝碨熥罻鳙鄓桘苛埐婢洒屓仮
